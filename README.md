@@ -1,1 +1,1 @@
-# fireseven
+Fire Seven privacy policy
